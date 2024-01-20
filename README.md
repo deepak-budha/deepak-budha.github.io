@@ -1,1 +1,0 @@
-# deepak-budha.github.io
